@@ -1,1 +1,0 @@
-# Jade is the best!
