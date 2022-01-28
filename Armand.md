@@ -1,1 +1,0 @@
-Exercise 2 pull request is very informative
